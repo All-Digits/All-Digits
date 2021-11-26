@@ -1,0 +1,5 @@
+- I’m @All-Digits
+- interested in basically anything you have to code
+- I’m currently learning Python, HTML & CSS
+- I’m looking to collaborate on Games
+- My email: aimuastephen2000@yahoo.com
